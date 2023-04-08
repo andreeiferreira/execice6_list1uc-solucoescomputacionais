@@ -1,0 +1,1 @@
+# execice6_list1uc-solucoescomputacionais
